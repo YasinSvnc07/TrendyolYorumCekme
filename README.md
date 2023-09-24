@@ -6,5 +6,5 @@ TRENDYOL
 
 Twitter
 
-207kamrhs5lp4g0a
+207kamrhs5lp4g0a Bitiş 24.10.2023
 
