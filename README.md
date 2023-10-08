@@ -5,7 +5,7 @@ TRENDYOL
 
 45a045fg4asd Bitiş 25.10.2023
 
-gkdmarls5089s8ad7 Bitiş belirsiz
+gkdmarls5089s8ad7Bitişş
 
 Twitter
 
