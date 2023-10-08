@@ -9,7 +9,7 @@ gkdmarls5089s8ad7Bitişş
 
 Twitter
 
-207kamrhs5lp4g0aBitişş
+207kamrhs5lp4g0a Bitiş 25.10.2023
 
 
 Twitter And Reddit
