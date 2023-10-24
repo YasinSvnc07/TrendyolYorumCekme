@@ -1,19 +1,10 @@
 # TrendyolYorumCekme
 TRENDYOL
 
-7klsm096aertk Bitiş 25.10.2023
-
-45a045fg4asd Bitiş 25.10.2023
-
 4070-kslmajsd45 Bitiş 20.11.2023
 
 gkdmarls5089s8ad7Bitişş
 
-Twitter
-
-207kamrhs5lp4g0a Bitiş 25.10.2023
-
-y1gnamskd706550a Bitiş 19.10.2023
 
 
 Twitter And Reddit
